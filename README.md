@@ -14,6 +14,8 @@
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/422f0848-1b31-4cb5-8f64-e9c4143f74ec"/>
+</p>
+<p align="center">
   <img src="https://github.com/user-attachments/assets/a65c6ef7-783a-49af-91ca-7e5e018fce6b"/>
   </p>
 <img width="1280" height="15" alt="tumblr_150c233a9e720402517c0d66dfbef04f_8aba5aae_1280" src="https://github.com/user-attachments/assets/603d0f17-978e-4a48-b9ca-418267a3bdde" />

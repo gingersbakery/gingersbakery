@@ -48,9 +48,25 @@ Hello fellow customers, I am Ginger. I can be mostly found in docks, rps, and fa
 $${{\color{Red}\Large{{୨ৎ⠀,⠀DNIs⠀<𝟑 .ᐟ \ \}}}}\$$
 
 <p align="center">
-Basic Dni. always...
+Basic Dni criteria. always...
 </p>
 <p align="center">
 Dni that are blacklisted from Bio rad, Aquatic ambitions, and any RP I was in.
 </p>
-Dni people that support/are fans of any problematic people, media, and fandom
+<p align="center">
+people that support/are fans of any problematic people, media, and fandoms
+</p>
+<p align="center">
+DNI IF YOU'RE GONNA SAY OR DO NSFW ON ME. IM A MINOR. unless ita satire or joke, but still. don't do this... 
+</p>
+<p align="center">
+DNI if you're just gonna be toxic or bully me for being just a DW fan, I know the fandom is crazy rn, but it doesn't mean you have to harass someone...
+</p>
+
+<img width="1280" height="15" alt="tumblr_150c233a9e720402517c0d66dfbef04f_8aba5aae_1280" src="https://github.com/user-attachments/assets/603d0f17-978e-4a48-b9ca-418267a3bdde" />
+
+$${{\color{Red}\Large{{𓏵⠀Thank⠀You⠀4⠀Reading⠀⋮⠀꒱\ \}}}}\$$
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/a53b7f02-384e-4fb8-aada-b8be0c592cd8"/>
+</p>

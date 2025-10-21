@@ -1,4 +1,4 @@
-<img width="1080" height="608" alt="tumblr_fc793a7b3f7a63fc9ee66d4ebbbef015_9dfaad71_1280" src="https://github.com/user-attachments/assets/442ce5ab-cc19-4925-9e56-4db84c2594dc" />
+<img width="1080" height="608" alt="tumblr_85060d71ea1b6d8bf4c3bade2a51d073_9337512a_1280" src="https://github.com/user-attachments/assets/4f69b077-3169-4e55-beed-84a7a10c828f" />
   <p align="center">
 <img src="https://komarev.com/ghpvc/?username=gingersbakery&label=୨ৎ+cookies+ᵎᵎ&color=ea3346&style=plastic" alt="Profile views"/>
   </p>
@@ -16,6 +16,7 @@
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/422f0848-1b31-4cb5-8f64-e9c4143f74ec"/>
+<img src="https://github.com/user-attachments/assets/8dcf3e7d-42bc-4507-a342-2917563abf9e"/>
 </p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/8dd5a6cc-c474-4b4c-aa48-c923d4298720"/>

@@ -1,6 +1,6 @@
 <div align=center>
 <img width="50" height="50" alt="Untitled214_20260624050513" src="https://github.com/user-attachments/assets/027f5cb1-b162-419d-a0e7-411b21ad6a8c" />
-<img src="https://komarev.com/ghpvc/?username=gingersbakery&label=୨ৎ+cookies+ᵎᵎ&color=86416B&style=plastic" alt="Profile views"/>
+<img src="https://komarev.com/ghpvc/?username=gingersbakery&label=୨ৎ+cookies+ᵎᵎ&color=86416B&style=flat" alt="Profile views"/>
 <img width="50" height="50" alt="Untitled214_20260624050523" src="https://github.com/user-attachments/assets/c95f65e1-fe44-4748-970a-5a16cbd58446" />
 <img align="center" width="700" alt="Untitled546_20260624035729" src="https://github.com/user-attachments/assets/a5977b17-e441-4725-9a6b-d4f5d2126495" />
 
